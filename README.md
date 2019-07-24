@@ -1,3 +1,3 @@
 # Mya Git Hub Study
 
-mya Website
+mya Website - 화이팅!!
